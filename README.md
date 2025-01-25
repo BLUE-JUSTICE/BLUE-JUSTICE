@@ -2,4 +2,3 @@
 
 yeah no shot hes legit me 
 
-anyway blabla bla my strwpg is stil a wip so...... 
