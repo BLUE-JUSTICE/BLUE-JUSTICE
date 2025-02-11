@@ -1,4 +1,3 @@
-![8bf1a330706d018d3d6a6967b8cf7ceb](https://github.com/user-attachments/assets/3b56669c-de9b-4d91-90e8-6bfe1c0ebd4e)
+![artwork-440x440](https://github.com/user-attachments/assets/e32d8e02-f2e0-42c3-9c08-ce9e70183f29)
 
-yeah no shot hes legit me 
-
+me and the gang frfr
